@@ -1,0 +1,5 @@
+- Why hello, I’m ChockisDeChocolate
+-  I’m interested in cookies
+-  I’m currently learning coding... So i can make COOKIE GAMES ❗❗🔥🔥
+-  I’m not currently looking to collaborate in anything because, Well. I'm still learning
+- Att- PLEASE CONTACT ME IF YOU KNOW HOW TO MAKE COOKIE GAMES LIKE A PRO 😎🔥🔥
